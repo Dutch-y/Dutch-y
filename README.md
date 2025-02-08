@@ -4,8 +4,8 @@
 -  I’m looking to collaborate with likeminded, arty-crafty peopleto create AI like never befor ;P
 - 📫 How to reach me:
 - 😄 Pronouns:😄 Pronouns: He/Him, Me-Myself-and-I
-- ⚡ Fun fact: ⚡ Fun fact: "Ik mix tech en kunst alsof het specerijen zijn – altijd verrassend en nooit saai!"
-- "Eens een creatief idee in mijn hoofd, gaat het nergens heen zonder explosieve uitwerking." 😆
+- ⚡ Fun fact: ⚡ Fun fact: "I mix tech and art as if they were spices – always surprising and never boring!"
+- "Once a creative idea in my head, it doesn't go anywhere without explosive effect." 😆
 
 <!---
 Dutch-y/Dutch-y is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
